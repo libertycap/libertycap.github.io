@@ -1,3 +1,0 @@
-# libertycap.github.io
-
-Sandbox
